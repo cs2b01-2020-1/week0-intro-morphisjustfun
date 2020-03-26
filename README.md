@@ -1,1 +1,2 @@
-# week0-intro
+Rios Gamboa Mario Jacobo
+
